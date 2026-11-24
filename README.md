@@ -3,7 +3,7 @@
 <p align="center">
 <div align="center">
   <a href="https://rentry.co/vanessapalmer">rentry</a>　🂽
-　<a href="https://penknifelovelife.atabook.org/">atabook</a>￴
+　<a href="https://vanpalmer.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
