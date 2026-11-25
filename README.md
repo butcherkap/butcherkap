@@ -2,8 +2,8 @@
 <img width="185px" height="102px" src="https://file.garden/aTN1R0deYkPxCX0D/shauna%26mell.webp">
 <p align="center">
 <div align="center">
-  <a href="https://rentry.co/penknifelovelife">rentry</a>　♡
-　<a href="https://penknifelovelife.atabook.org/">atabook</a>￴
+  <a href="https://rentry.co/butcherkap">rentry</a>　♡
+　<a href="https://butcherkap.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
