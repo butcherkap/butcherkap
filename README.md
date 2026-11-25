@@ -1,8 +1,8 @@
 <p align="center">
-<img width="120px" height="120px" src="https://64.media.tumblr.com/484fd59d106629ff40625207d87c3367/dc4271797cb64230-af/s540x810/6182cbfc4235065f9a39c6c3d5fd7ec225379641.gifv">
+<img width="185px" height="102px" src="https://file.garden/aTN1R0deYkPxCX0D/shauna%26mell.webp">
 <p align="center">
 <div align="center">
-  <a href="https://rentry.co/vanessapalmer">rentry</a>　🂽
+  <a href="https://rentry.co/vanessapalmer">rentry</a>　♡
 　<a href="https://vanpalmer.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
